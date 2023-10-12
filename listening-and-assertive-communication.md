@@ -26,5 +26,15 @@ i get exitected to keep my front of by stoping the speaker in the middle
 
 Q4)What can you do to improve your listening?
 
-To improve my listening , i have to
+To improve my listening , i have to follow the certain rule:-
+    Approach conversations with an open mind.
+    Ask clarifying questions for better understanding.
+    Practice mindfulness for staying present.
+    Minimize distractions for a conducive environment.
+
+
+Q5) When do you switch to Passive communication style in your day to day life?
+
+Whenever i see there may be a conflict about any 
+
 
