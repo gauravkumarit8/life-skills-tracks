@@ -35,6 +35,9 @@ To improve my listening , i have to follow the certain rule:-
 
 Q5) When do you switch to Passive communication style in your day to day life?
 
-Whenever i see there may be a conflict about any 
+Whenever i see there may be a conflict about any thought ,and someone is not ready to listen then i become passive communicator there.
+
+
+Q6) When do you switch into Aggressive communication styles in your day to day life?
 
 
