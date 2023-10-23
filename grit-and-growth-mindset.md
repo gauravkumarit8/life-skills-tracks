@@ -26,7 +26,7 @@ They give a puzzles to fifth graders, and they told some did well because they w
 
 **Question 5. What are your ideas to take action and build Growth Mindset?**
 
-  To take action and build a growth mindset, you can consider the following ideas:
+  To take action and build a growth mindset, we can consider the following ideas:
 
 -  1.Take Challenges as opportinities: Seek out challenges and view them as opportunities for growth. Don't run away from difficult tasks; instead, tackle them with full energy.
 
